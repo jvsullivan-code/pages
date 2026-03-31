@@ -1,1 +1,1 @@
-John Sullivan | AI & Agentic Systems
+John Sullivan | AI Blog
